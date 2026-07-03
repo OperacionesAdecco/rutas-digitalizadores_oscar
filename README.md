@@ -1,1 +1,0 @@
-# rutas-digitalizadores_oscar
